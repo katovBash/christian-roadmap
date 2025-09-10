@@ -1,4 +1,4 @@
-# Christian RoadMap 
+# 🕊️ Christian RoadMap 
 A personal collection of texts and reflections that have deeply influenced my spiritual journey.
 
 # 🧭 Why This Roadmap?
@@ -10,15 +10,15 @@ They’ve been companions on my journey, and I hope they can be on yours too.
 # 📚 Books: 
 
 1. Jonathan Livingston Seagull by Richard Bach. 
-🕊️ Look at religion from a completely different angle.
+🌿 Look at religion from a completely different angle.
 
 2. The Screwtape Letters by C.S. Lewis. 
-🕊️ The choice is much closer than we think.
+🌿 The choice is much closer than we think.
 
 # 📝 Articles: 
 
 1. The Way of the Warrior. Hercules.
-🕊️ A modern interpretation of the Hercules myths as a path to personal and spiritual growth.
+🌿 A modern interpretation of the Hercules myths as a path to personal and spiritual growth.
 🔗 [Read the article ](https://shorturl.at/P7alj)
 🔗 [Full article series](https://shorturl.at/F3FDn)
 
