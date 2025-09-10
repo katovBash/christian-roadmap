@@ -9,18 +9,13 @@ They’ve been companions on my journey, and I hope they can be on yours too.
 
 # 📚 Books: 
 
-1. Jonathan Livingston Seagull by Richard Bach. 
+1. Jonathan Livingston Seagull by Richard Bach. (Look at religion from a completely different angle.)
 
-🌿 Look at religion from a completely different angle.
-
-2. The Screwtape Letters by C.S. Lewis. 
-
-🌿 The choice is much closer than we think.
+2. The Screwtape Letters by C.S. Lewis. (The choice is much closer than we think.)
 
 # 📝 Articles: 
 
-1. The Way of the Warrior. Hercules.
-🌿 A modern interpretation of the Hercules myths as a path to personal and spiritual growth.
+1. The Way of the Warrior. Hercules. (A modern interpretation of the Hercules myths as a path to personal and spiritual growth.)
 
 🔗 [Read the article ](https://shorturl.at/P7alj)
 
