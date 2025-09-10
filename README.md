@@ -5,7 +5,7 @@ A personal collection of texts and reflections that have deeply influenced my sp
 This selection represents a blend of thought, mythic reflection, and accessible spirituality. These works don’t just instruct — they invite. 
 They’ve been companions on my journey, and I hope they can be on yours too.
 
-***“The truth is not just told — it’s recognized.”***
+***“The truth is not just told  -  it’s recognized.”***
 
 # 📚 Books: 
 
