@@ -21,4 +21,5 @@ They’ve been companions on my journey, and I hope they can be on yours too.
 
 🔗 [Full article series](https://shorturl.at/F3FDn)
 
-# 👮🏼‍♀️ This is a living document. Feel free to suggest additions or start a conversation.
+ 
+***👮🏼‍♀️ This is a living document. Feel free to suggest additions or start a conversation.***
